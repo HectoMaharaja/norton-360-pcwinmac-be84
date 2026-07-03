@@ -1,4 +1,4 @@
-# 
+# Personalizado Norton 360 extensões para Mac OS | Automático Norton 360 extensões para PC Windows. Com túnel dividido e ofuscação — otimizado para máximo desempenho em cada plataforma.
 
 
 
